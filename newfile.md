@@ -16,6 +16,7 @@
 
 ##INTRESTS:-
 -CODING
+-Badminton
 -MUSIC
 
 ## Contacts:-
